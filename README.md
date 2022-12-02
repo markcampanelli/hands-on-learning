@@ -1,5 +1,5 @@
-# Hands-On Learning
-Forging opportunities for hands on learning through reconceived schooling.
+# Hands-On Schooling
+Forging opportunities for hands-on learning through reconceived schooling.
 
 ## Motivation
 > Are you frustrated by the devolution of contemporary schooling?
