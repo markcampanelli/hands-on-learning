@@ -33,22 +33,21 @@ challenge themselves and their peers through both competition and cooperation. T
 particularly true for boys, who are incresingly "checking out" of zombified contemporary
 schooling.
 
-Kids learn by doing, not by sitting and memorizing "math facts" or endless
-computerized "competency assessments".
-
-The adults are merely a guiding presence in this exploration.
-
-I am in the concept stages of establishing a new school based in a *hands on* approach
-to learning. 
+Kids learn by doing, not by sitting and memorizing "math facts" or endless computerized
+"competency assessments". The adults are merely a guiding presence in this exploration.
 
 Think instead of a shop class lasting the whole day rather than one period for one
 6-week elective.
 
-Think kids building concrete porfolios of successes and failures, instead of merely
-doing everything for a report card and because it's needed in the next grade.
+Think of kids building concrete porfolios of successes and failures, instead of merely
+doing everything for a report card and because it's "needed in the next grade".
 
-It's time for an alternative to our our outdated approach, which is inhumane to many
-kids and their teachers. It's also largely a waste of the parents' and taxpayers' money.
+It's time for an alternative to our outdated approach to schools, which is downright
+inhumane to many kids and their teachers. It's also largely a waste of the parents' and
+taxpayers' money.
+
+I am in the concept stages of establishing a new school based around a *hands-on*
+approach to learning. 
 
 ## Connect
 
