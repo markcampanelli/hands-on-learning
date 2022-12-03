@@ -1,3 +1,5 @@
+[References](breakouts/references.md)
+
 # Hands-On Schooling
 Forging opportunities for hands-on learning through reconceived schooling.
 
