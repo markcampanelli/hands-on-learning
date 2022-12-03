@@ -46,8 +46,9 @@ Think of a teacher facillitating the break down of projects into teams of studen
 with individualized tasks for each student on each team. The teacher also pulls in
 expertise from the community where needed.
 
-Think of a kid accruing a concrete porfolio of successes and failures, instead of merely
-doing everything for a report card and because "it will be needed in the next grade".
+Think of a student accruing a concrete porfolio of successes and failures, instead of
+merely doing everything for a report card and because "it will be needed in the next
+grade".
 
 It's time for an alternative to our expired approach to schooling, which is downright
 inhumane to many kids and their teachers. It's also largely a waste of the parents' and
