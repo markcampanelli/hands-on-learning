@@ -15,36 +15,37 @@ meaningless computerized homework, and endless preparation for standardized test
 I see burnt out teachers who have given in to the worst habits forged by a system that
 has forgotten that education exists to serve *humanity*, not vice versa.
 
-I see YouTube videos that humorously uncover nearly every corner of our wonderful world
-to curious kids, while those same kids struggle with excessive hands-off screentime and
-the all-too-prevelant isolation, banality, or cruelty of social media.
+I see YouTube videos that uncover nearly every corner of our wonderful world to curious
+kids, while those same kids struggle with the all-too-prevelant isolation, banality, or
+cruelty of social media and excessive screentime.
 
-I see an educational system that almost entirely misses the mark in its mission
-to forge a connection between individuals' pursuit of happiness using thier talents and
-society's desperate need for critical thinkers, entrepreneurs, ceative and efficient
-workers, and informed voters.
+I see an educational system that largely misses the mark in its mission to forge the
+connection between a talented individual's pursuit of happiness and civil society's
+desperate need for critical thinkers, entrepreneurs, ceative and efficient workers,
+informed voters, and institutional watchdogs.
 
 ## The Idea
 
 > I imagine there is another way.
 
-To really learn, many kids need to build things, experiment, play rough, and
-challenge themselves and their peers through both competition and cooperation. This is
-particularly true for boys, who are incresingly "checking out" of zombified contemporary
-schooling.
+To really learn, many kids need to build things, experiment, break things, play rough,
+and challenge themselves and their peers through both competition and cooperation. This
+is particularly true for boys, who are incresingly "checking out" of zombified
+contemporary schooling.
 
-Kids learn best by doing, not by sitting and memorizing "content" or taking endless
-"competency assessments". The teachers are the external guiding presence in this
-exploration, and they include parents, community members, and especially other kids.
+Kids learn best by doing, not by sitting and memorizing "standards content" or taking
+endless "competency assessments". The teachers are the external guiding presence in this
+exploration, and they include parents, community members, and even other kids.
 
 Think of a shop class lasting several hours each day, rather than one 40-minute
 period each day for one 6-week elective during one whole school year.
 
-Think of a teacher breaking down a build project into teams of kids, with individualized
-tasks for each kid on each team.
+Think of a teacher facillitating the break down of projects into teams of students,
+with individualized tasks for each student on each team. The teacher also pulls in
+expertise from the community where needed.
 
 Think of a kid accruing a concrete porfolio of successes and failures, instead of merely
-doing everything for a report card or because "it's needed in the next grade".
+doing everything for a report card and because "it will be needed in the next grade".
 
 It's time for an alternative to our expired approach to schooling, which is downright
 inhumane to many kids and their teachers. It's also largely a waste of the parents' and
