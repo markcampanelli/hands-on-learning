@@ -60,3 +60,8 @@ If you would like to join this effort, then please reach out to me at
 [mark.campanelli@gmail.com](mailto:mark.campanelli@gamil.com).
 
 My resume is available on [LinkedIn](https://www.linkedin.com/in/markcampanelli/).
+
+## Breakouts
+
+<!-- - [Challenges](breakouts/challenges.md) -->
+- [References](breakouts/references.md)
