@@ -8,8 +8,8 @@ Forging opportunities for hands-on learning through reconceived schooling.
 
 I certainly am.
 
-My name is Mark Campanelli. I am a parent of two middle school kids. I have grown
-utterly despondent with the current state of "modern" schooling.
+My name is Mark Campanelli. I am a parent of two middle school kids (girl and boy). I
+have grown utterly despondent with the current state of "modern" schooling.
 
 I see my kids struggle to find connection to the real world with "math facts",
 meaningless computerized homework, and endless preparation for standardized tests.
@@ -31,16 +31,19 @@ informed voters, and institutional watchdogs.
 > I imagine there is another way.
 
 To really learn, many kids need to build things, experiment, break things, play rough,
-and challenge themselves and their peers through both competition and cooperation. This
-is particularly true for boys, who are incresingly "checking out" of zombified
-contemporary schooling.
+and challenge themselves and their peers through both competition and cooperation.
+
+This is particularly true for boys, who are incresingly "checking out" of zombified
+contemporary schooling. And while girls generally "adapt" better to the current
+schooling environment, they are nevertheless plagued with low self-esteem and rampant
+social pathologies.
 
 Kids learn best by doing, not by sitting and memorizing "standards content" or taking
 endless "competency assessments". The teachers are the external guiding presence in this
 exploration, and they include parents, community members, and even other kids.
 
-Think of a shop class lasting several hours each day, rather than one 40-minute
-period each day for one 6-week elective during one whole school year.
+Think of a shop class or design studio lasting several hours each day, rather than one
+40-minute period each day for one 6-week elective during one whole school year.
 
 Think of a teacher facillitating the break down of projects into teams of students,
 with individualized tasks for each student on each team. The teacher also pulls in
@@ -51,7 +54,7 @@ merely doing everything for a report card and because "it will be needed in the 
 grade".
 
 It's time for an alternative to our expired approach to schooling, which is downright
-inhumane to many kids and their teachers. It's also largely a waste of the parents' and
+inhumane to many kids and their teachers. It's also largely a waste of parents' and
 taxpayers' money.
 
 I'm in the concept stages of establishing a new school based around a *hands-on*
