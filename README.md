@@ -33,10 +33,9 @@ informed voters, and institutional watchdogs.
 To really learn, many kids need to build things, experiment, break things, play rough,
 and challenge themselves and their peers through both competition and cooperation.
 
-This is particularly true for boys, who are incresingly "checking out" of zombified
-contemporary schooling. And while girls generally "adapt" better to the current
-schooling environment, they are nevertheless plagued with low self-esteem and rampant
-social pathologies.
+This is particularly true for boys, who are increasingly checking out of zombified
+schooling. And while girls generally adapt better to the environment, they are
+nevertheless plagued with low self-esteem and other social pathologies.
 
 Kids learn best by doing, not by sitting and memorizing "standards content" or taking
 endless "competency assessments". The teachers are the external guiding presence in this
