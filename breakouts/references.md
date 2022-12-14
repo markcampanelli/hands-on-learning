@@ -6,3 +6,5 @@
 - [Bowling for Columbine (2002) - Matt Stone on High School Scene (6/11)](https://www.youtube.com/watch?v=0_-45EGFtA4)
 - [“Of Boys and Men:” Why the Modern Male Is Struggling](https://www.youtube.com/watch?v=kLBHUC90UFg)
 - [The Boy Crisis: A Sobering look at the State of our Boys](https://www.youtube.com/watch?v=Qi1oN1icAYc)
+- [Confessions of a Former Mean Girl](https://www.youtube.com/watch?v=FazRGaiASgA)
+- [Meet the teens lobbying to regulate social media](https://www.youtube.com/watch?v=XvM8hqoHXkI)
