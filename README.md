@@ -34,7 +34,7 @@ To really learn, many kids need to build things, experiment, break things, play 
 and challenge themselves and their peers through both competition and cooperation.
 
 This is particularly true for boys, who are increasingly checking out of zombified
-schooling. And while girls generally adapt better to the environment, they are
+schooling. And while girls generally adapt better to the current environment, they are
 nevertheless plagued with low self-esteem and other social pathologies.
 
 Kids learn best by doing, not by sitting and memorizing "standards content" or taking
